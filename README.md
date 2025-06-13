@@ -1,1 +1,0 @@
-# GDX-Nova---web
